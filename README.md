@@ -6,4 +6,4 @@
 - 💬 Ask me about cooking, I know a lot.
 - 📫 How to reach me: my github handle @ free.fr
 - 😄 Pronouns: he/him/his
-- ⚡ Fun fact: I wear asymmetrical glasses and own a large record collection
+- ⚡ Fun fact: I own a large record collection
